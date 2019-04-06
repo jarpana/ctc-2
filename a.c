@@ -6,8 +6,5 @@ asdlhcia
 ';adlf';{
 	alsdadk
 }
-ndczkh
-jsdhbfkj
-kxhfjs
 adjfskljfgdjfl
 asdijoa
